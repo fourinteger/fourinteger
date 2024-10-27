@@ -7,6 +7,8 @@ any pronouns
 
 i am quite literally four bfb irl
 
+NO c+h
+
 <a href="https://fourinteger.atabook.org">ata</a>
 #
 
