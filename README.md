@@ -3,7 +3,7 @@
 #
 m name is four
 
-any pronouns
+he/him
 
 i am quite literally four bfb irl
 
