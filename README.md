@@ -12,4 +12,4 @@ all art by me.
 <a href="https://fourinteger.atabook.org">ata</a> - <a href="https://www.patreon.com/c/fourinteger/about">patreon</a> - <a href="https://four-integer.straw.page">sp</a>
 #
 
-![](https://media.discordapp.net/attachments/1330015617142493194/1337766708613484606/monitoring.jpg?ex=67a8a3d5&is=67a75255&hm=e4093377f2160b1106424fb638971d985b6b88d922c6266d4557deb5176aa335&=&format=webp&width=1014&height=676)
+![](https://media.discordapp.net/attachments/907859146769063946/1347564612412768307/monitoring.jpg?ex=67cc48d8&is=67caf758&hm=92fd3fbd899c329f5df2d9ce848866e5880a2393119c96a44bebc8b83c7bd010&=&format=webp&width=525&height=350)
