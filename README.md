@@ -12,4 +12,4 @@ azuretime ceo
 <a href="https://fourinteger.atabook.org">ata</a> - <a href="https://www.patreon.com/c/fourinteger/about">patreon</a> - <a href="https://four-integer.straw.page">sp</a>
 #
 
-![](https://imgur.com/gallery/uavzMHo)
+![](https://i.pinimg.com/736x/41/de/11/41de11457460c3f3f65a0506738eb728.jpg)
