@@ -5,11 +5,11 @@ m name is four
 
 he/him
 
-i am quite literally four bfb irl
+check links byi
 
-azuretime ceo
+hwang in-ho's 4th biggest fan
 
 <a href="https://fourinteger.atabook.org">ata</a> - <a href="https://www.patreon.com/c/fourinteger/about">patreon</a> - <a href="https://four-integer.straw.page">sp</a> - <a href="https://en.pronouns.page/@fourinteger">prnspage</a>
 #
 
-![](https://i.pinimg.com/736x/41/de/11/41de11457460c3f3f65a0506738eb728.jpg)
+![](https://i.pinimg.com/1200x/3a/8c/4d/3a8c4d6f2d52256b7c223c24e82b07b6.jpg)
