@@ -1,4 +1,4 @@
-![](https://komarev.com/ghpvc/?username=fourinteger&color=261909)
+![](https://komarev.com/ghpvc/?username=fourinteger&label=+〇+△+□+&color=261909)
   
 #
 m name is four
